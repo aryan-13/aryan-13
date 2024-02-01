@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **aryanchaudhary13@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1l5v_OpaHJDhUFW6ijN91kZkpTCKTVk0H/view?usp=drive_link](https://drive.google.com/file/d/1l5v_OpaHJDhUFW6ijN91kZkpTCKTVk0H/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1l5v_OpaHJDhUFW6ijN91kZkpTCKTVk0H/view?usp=drive_link](https://shorturl.at/CKMUY)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
